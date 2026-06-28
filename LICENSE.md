@@ -1,4 +1,4 @@
-# 
+# Personalizado Reaper ferramentas para Mac OS | Top Reaper ferramentas para PC Windows. Com efeitos de transição e edição multicâmera — otimizado para máximo desempenho em cada plataforma.
 
 
 
